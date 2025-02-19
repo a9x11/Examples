@@ -1,1 +1,1 @@
-Examples of my schemes is here
+Examples of my schemes are here
